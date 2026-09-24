@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LERA880521MDFNDN03
+LERA880521MDFNDN03
